@@ -1,6 +1,6 @@
 # ccpthisdog
 
-## 追求民主自由 Democracy Freedom.
+## 追求民主自由。
 ## 权力来自于谁就服务谁，你有选举权吗？
 ## 我对于反对ccp没有兴趣，一心要铲除ccp。
 
