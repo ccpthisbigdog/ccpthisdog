@@ -8,7 +8,7 @@
 
 [人权报告](https://a.com) <br />
 
-[浏览本github网页](https://ccpthisbigdog.github.io/ccpthisdog/)
+[浏览本站](https://ccpthisbigdog.github.io/ccpthisdog/)
 <br />
 
 [www.ccpthisdog.org:8964](https://www.ccpthisdog.org/) <br />
