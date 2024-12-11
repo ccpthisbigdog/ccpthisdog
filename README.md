@@ -6,8 +6,10 @@
 
 [ccp太子党关系网络](https://github.com/programthink/zhao)<br />
 
-		[人权报告](https://a.com) <br />
-<a href="https://ccpthisbigdog.github.io/ccpthisdog/">浏览网页https://ccpthisbigdog.github.io/ccpthisdog/</a>
+[人权报告](https://a.com) <br />
+
+[浏览网页](https://ccpthisbigdog.github.io/ccpthisdog/)
+<br />
 
 [www.ccpthisdog.org:8964](https://www.ccpthisdog.org/) <br />
 [编程随想的博客](https://program-think.blogspot.com/)<br />
