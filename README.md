@@ -17,7 +17,7 @@
 
 
 [李强对你说](https://x.com/lisaytoyou)<br />
-[李老师](https://x.com/whyyoutouzhele)<br />
+[李老师不是你老师](https://x.com/whyyoutouzhele)<br />
 [攝徒日記:八炯](https://youtube.com/@funtv8964)<br />
 [恶人榜](https://www.fiendlist.info) <br />
 [悉尼奶爸](https://youtube.com/@sydneydaddy1) <br />
