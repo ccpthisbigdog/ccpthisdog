@@ -6,7 +6,7 @@
 
 [ccp太子党关系网络](https://github.com/programthink/zhao)<br />
 
-		<font color="#red">[人权报告](https://a.com)</font> <br />
+		<font color="#d00">[人权报告](https://a.com)</font> <br />
 <a href="https://ccpthisbigdog.github.io/ccpthisdog/">浏览网页https://ccpthisbigdog.github.io/ccpthisdog/</a>
 
 [www.ccpthisdog.org:8964](https://www.ccpthisdog.org/) <br />
