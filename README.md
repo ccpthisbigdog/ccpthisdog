@@ -14,4 +14,12 @@
 [www.ccpthisdog.org:8964](https://www.ccpthisdog.org/) <br />
 [编程随想的博客](https://program-think.blogspot.com/)<br />
 
+
+[李强对你说](https://x.com/lisaytoyou)<br />
+[李老师](https://x.com/whyyoutouzhele)<br />
+[攝徒日記:八炯](https://youtube.com/@funtv8964)<br />
+[恶人榜](https://www.fiendlist.info) <br />
+[悉尼奶爸](https://youtube.com/@sydneydaddy1) <br />
+[多伦多方脸](https://youtube.com/@torontobigface) <br />
+
           
