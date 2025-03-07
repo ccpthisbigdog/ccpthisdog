@@ -23,7 +23,7 @@
 [悉尼奶爸](https://youtube.com/@sydneydaddy1) <br />
 [多伦多方脸](https://youtube.com/@torontobigface) <br />
 
-## 以下是推特内容twitter。
+## 以下是twitter推特内容。
 
 [中国共产党是恐怖组织](https://x.com/lisaytoyou/status/1883942071318515739)   <br />
 
